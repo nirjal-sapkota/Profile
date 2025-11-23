@@ -1,1 +1,0 @@
-nirjal.github.io
